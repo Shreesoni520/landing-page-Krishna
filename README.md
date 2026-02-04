@@ -1,3 +1,3 @@
 # landing-page-krishna
 br
-yo who ever is watching this file its still not comeplet yet so no judging ok
+Yo, whoever is watching this file, it’s still not complete yet, so no judging, ok. Ty
